@@ -1,4 +1,4 @@
-
+Enhance TweetDeck for macOS with TweetDeck for macOS smart Script: social-media-export & AI-enhanced-editing, the #1 script. Includes social-media-export and AI-enhanced-editing
 
 
 
